@@ -3,4 +3,4 @@ Simon's Stamp Collection App
 
 # About Simon
 
-Stuff about Simon's Stamps here ... 
+New York TImes raves this is one heckufa stamp collection y'all!
